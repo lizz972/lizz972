@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @lizz972
 - 👀 I’m interested in creative technological solutions that help humanity
-- 🌱 I’m currently learning everything ai 
 - 💞️ I’m looking to collaborate on community focused solutions 
 - 📫 How to reach me :ping me here 
 
